@@ -1,2 +1,0 @@
-# CVRuzanna
-Ruzanna's CV 
